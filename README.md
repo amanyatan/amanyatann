@@ -1,6 +1,6 @@
 # amanyatann
 # 💫 About Me:
-I'm currently a freelancer<br>Open to Join any kind of Saas Start-up<br>learning Aiml and Creating Workflows<br>
+I'm currently  freelancer<br>Open to Join any kind of Saas Start-up<br>learning Aiml and Creating Workflows<br>
 
 
 ## 🌐 Socials:
